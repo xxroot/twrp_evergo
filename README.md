@@ -6,3 +6,6 @@
 不支持解密DATA，我也没有太多的时间去研究.希望来个大神来搞定
 
 如果有中国的机友想交流，可加扣扣：1654068666
+
+I can't speak English, foreign passengers please speak Chinese
+Telegram https://t.me/Magiskuser
